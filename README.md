@@ -1,5 +1,4 @@
-# maximusmaximalistus Blog 
+# maximusmaximalistus
 
-## Article One
 
-## Artcile two
+https://linktr.ee/maximalistus
